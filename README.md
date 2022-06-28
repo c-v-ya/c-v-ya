@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 🤙
 
 If you wan to contact me, then send a message on telegram [@c_v_ya](https://t.me/c_v_ya).
 Or email me to [ceeveeya@gmail.com](mailto:ceeveeya@gmail.com).
